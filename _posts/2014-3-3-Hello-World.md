@@ -19,7 +19,7 @@ Apart from my tech journey, I have an affinity for sports as well. I captained t
 
 In this blog, you can expect a blend of technical insights, product management experiences, and occasional glimpses into my interests beyond the tech world. Here's to an enriching journey of sharing and learning!
 
-Feel free to drop a line at mcnallylaurence@gmail.com or give me a call at 4047139387 if you have any questions, or suggestions, or simply want to chat about tech, product management, or Gaelic football!
+Feel free to drop a line at mcnallylaurence@gmail.com if you have any questions, or suggestions, or simply want to chat about tech, product management, or Gaelic football!
 
 Happy reading!
 LMN
